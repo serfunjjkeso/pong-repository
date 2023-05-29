@@ -1,6 +1,6 @@
 # yo yo whatsup guys
 
-its your homeboy snoop double d o g 
+Its your homeboy snoop double d o g 
 
-#fully sick bruh
-this readme is totes lit
+# fully sick bruh
+This readMe is totes lit
