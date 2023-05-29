@@ -2,4 +2,5 @@
 
 its your homeboy snoop double d o g 
 
-fully sick bruh
+#fully sick bruh
+this readme is totes lit
